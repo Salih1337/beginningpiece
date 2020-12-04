@@ -1,3 +1,2 @@
 # beginningpiece
-ey dost xaxa
-hey
+ey kadim dost selam
